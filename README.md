@@ -1,1 +1,1 @@
-# pranavakadiya.githib.io
+# pranavakadiya.github.io
